@@ -5,7 +5,7 @@ This in theory will get you solid gains in both strength and size.
 ## Notation
 When describing sets and reps I will use the following format:
 
-sets x reps
+*sets x reps*
 
 
 ## THE ROUTINE
@@ -18,7 +18,14 @@ You can choose between the following:
 1. Sitting Row
 2. Pendlay Row
 3. T-Bar Row
-#### Horizontal Rows 4x
+
+#### Curls 3x(6-8)
+My fav curl style is the preacher curl, with both arms propped up. But standing is fine, just make sure your arms are close to your body.
+
+#### Horizontal Rows 3x(6-10)
+#### Overhead Shoulder Press with Dumbells 4x(5-8) 
+
+
 
 
 
