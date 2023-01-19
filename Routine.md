@@ -32,6 +32,12 @@ My fav curl style is the preacher curl, with both arms propped up. But standing 
 
 2. 
 ### Day 2: Lower Power
+#### Squats 4x(3-4)
+#### Leg Press 4x(5-6)
+#### Leg Curls 3x(5-6)
+#### Leg Extentions 3x(5-6)
+#### Calve Raises(standing or sitting) 4x(6-8)
+
 Day 3: Rest
 ### Day 4: Back and Shoulders Hypertrophy
 ### Day 5: Leg Hypertrophy
