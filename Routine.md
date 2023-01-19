@@ -8,6 +8,8 @@ When describing sets and reps I will use the following format:
 *sets x reps*
 
 
+
+
 ## THE ROUTINE
 
 ### Day 1: Upper Power
@@ -33,9 +35,13 @@ My fav curl style is the preacher curl, with both arms propped up. But standing 
 2. 
 ### Day 2: Lower Power
 #### Squats 4x(3-4)
-*DONT DO BUTT WINK ;)*
+Tips:
+1. *DONT DO BUTT WINK ;)*
 https://www.youtube.com/watch?v=GuWxLb-iYlg
+
 #### Leg Press 4x(5-6)
+Tips:
+1. When you are on the extension part of the movement, do not fully extend so your knees are indented. 
 #### Leg Curls 3x(5-6)
 #### Leg Extentions 3x(5-6)
 #### Calve Raises(standing or sitting) 4x(6-8)
