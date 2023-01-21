@@ -48,5 +48,15 @@ Tips:
 
 Day 3: Rest
 ### Day 4: Back and Shoulders Hypertrophy
+#### Lat Pulldown 4x(8-12)
+#### Seated Cable Rows 4x(8-12)
+#### Horizontal Row  3x(6-10) alt (Tbar Rows)
+This one is hard, you might need to work more with the seated cable rows and the TBar rows before you can do it effectively. 
+#### Shrugs 4x(10-12)
+#### Sitting Shoulder Press Dumbells 4x(8-12)
+Keep the dumbells in front of your face at all times.
+
+
+
 ### Day 5: Leg Hypertrophy
 ### Day 6: Chest and Arm Hypertrophy
