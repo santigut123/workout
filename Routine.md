@@ -59,4 +59,18 @@ Keep the dumbells in front of your face at all times.
 
 
 ### Day 5: Leg Hypertrophy
+Just a note, this routine is basically the same as the lower body power, just more reps per set.
+
+#### Squats 4x(6-10)
+Tips:
+1. *DONT DO BUTT WINK ;)*
+https://www.youtube.com/watch?v=GuWxLb-iYlg
+
+#### Leg Press 4x(10-14)
+Tips:
+1. When you are on the extension part of the movement, do not fully extend so your knees are indented. 
+#### Leg Curls 3x(8-12)
+#### Leg Extentions 3x(8-12)
+#### Calve Raises(standing or sitting) 4x(10-14)
+
 ### Day 6: Chest and Arm Hypertrophy
