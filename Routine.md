@@ -73,4 +73,13 @@ Tips:
 #### Leg Extentions 3x(8-12)
 #### Calve Raises(standing or sitting) 4x(10-14)
 
+
+
 ### Day 6: Chest and Arm Hypertrophy
+#### Bench Press (With Bar) 4x(7-10)
+#### Inlcine Bench Press 4x(7-10)
+#### Dips(assisted until swole) 4x(7-10)
+#### Tricep Extension 4x(7-12)
+#### Bicep Curls (preacher prefer) 4x(7-12)
+
+
