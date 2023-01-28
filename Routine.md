@@ -7,6 +7,9 @@ When describing sets and reps I will use the following format:
 
 *sets x reps*
 
+## Note
+You can reduce amount of sets to 3 if you need to be quick or are really tired or something
+
 
 
 
@@ -76,10 +79,11 @@ Tips:
 
 
 ### Day 6: Chest and Arm Hypertrophy
-#### Bench Press (With Bar) 4x(7-10)
+#### Bench Press (With Bar or dumbells) 4x(7-10)
 #### Inlcine Bench Press 4x(7-10)
 #### Dips(assisted until swole) 4x(7-10)
 #### Tricep Extension 4x(7-12)
 #### Bicep Curls (preacher prefer) 4x(7-12)
+#### (optional) Cable Chest Flys 3x(8-10)
 
 
